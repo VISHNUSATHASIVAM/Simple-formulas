@@ -1,0 +1,1 @@
+Noble Thoughts will succeed.
